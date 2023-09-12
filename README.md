@@ -1,0 +1,2 @@
+# PatryykG
+strona do ćwiczeń
